@@ -1,1 +1,1 @@
-# QuandaleDingle.github.io ez clap
+The best website ever made
